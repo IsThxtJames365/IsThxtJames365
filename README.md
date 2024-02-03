@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @IsThxtJames365
+- 👀 I’m interested in Music and Art
+- 🌱 I’m currently learning Russian and Latin
+- 💞️ I’m excited to collaborate with my brother on becoming rich
+- 📫 How to reach me: Email- Delamora.1229@gmail.com
+- 😎 Socials: IG- 100man_james X- 100Man_James TT- isthxt_james365
+- 😄 Pronouns: he/him/his
+- ⚡ Fun fact: The eyes have a separate immune system than the rest of the body, If your body's immune system realizes your eyes exist, it'll attack the eyes and reject them from the body as it would a virus
